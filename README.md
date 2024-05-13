@@ -1,4 +1,3 @@
-# Kuzma Clothing & Shoes
 
 
 
